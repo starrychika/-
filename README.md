@@ -1,6 +1,8 @@
-𓏵 hello!! welcome to my profile. 
-! please do not copy my skins, i worked really hard on them. !
-𓏵 my name is cherie, but you can see others call me by kimchi as well. i'm clearly a minor, it'd be well appreciated for 19+ to not interact.
-pronouns are he/him/they (i really don't care unless you bring a 'she' to it)
-don't be afraid to c+h and int!! i'll be very happy if you do!
+      ⊹　 ︶︶　 ୨୧　 ︶︶　 ⊹
+    hello !! welcome to my profile! 
+i mainly go by cherie, but you can see others call me kimchi as well
+i'm a minor, so if you're 19+, pls dni.
+             ────୨ৎ────
+if you come from ponytown : please do not copy my skins, i worked hard on them.
 
+![ee3cc575323f30d81428cf7e70172785](https://github.com/user-attachments/assets/9a243328-c26e-4a0d-8c2c-df6877ef8fac)
