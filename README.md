@@ -5,5 +5,5 @@ i'm a minor, so if you're 19+, pls dni.
              ────୨ৎ────
 if you come from ponytown : please do not copy my skins, i worked hard on them.
 
-https://i.pinimg.com/1200x/e8/f0/17/e8f017684256f4d767ba114e69001887.jpg
 
+![e8f017684256f4d767ba114e69001887](https://github.com/user-attachments/assets/350e778c-7b58-417b-b217-c6b47fa65e73)
